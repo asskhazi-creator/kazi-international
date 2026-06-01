@@ -1,2 +1,0 @@
-# kazi-international
-Hotel 
